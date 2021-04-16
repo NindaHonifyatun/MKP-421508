@@ -9,7 +9,7 @@ patterns in nature (proses terbentuknya pola)</p>
 
 spontaneouse :Spontan Tanpa diminta-minta</p>
 
-<h1><p>Reyleigh - bernard convection</hi></p>
+<p>Reyleigh - bernard convection</p>
 
 <p>pola yang paling dasar adalah marphogenesis (ilmu pembentukan)</p>
 
